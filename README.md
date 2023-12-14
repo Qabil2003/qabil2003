@@ -14,6 +14,7 @@
 - 📫 How to reach me **qabilmusazade19@gmail.com**
 
 - ⚡ Fun fact **I'm Football Fan**
+- 20.12.2023 **I'm Web developer**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
